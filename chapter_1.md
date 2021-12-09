@@ -2,7 +2,7 @@
 
 **I woke up with a start…**
 
-The expression written on my face, if anyone saw me, was that of excitement, maybe it isn’t excitement…or I am just confused. It would have been, say embarrassing if I was in the public. Maybe I would been considered a fanatic, or a lunatic. Forget that for now… _What caused this inexplicable expression?_
+The expression written on my face, if anyone saw me, was that of excitement, maybe it isn’t excitement…or I am just confused. It would have been, say embarrassing if I was in the public. Maybe I would be considered a fanatic, or a lunatic. Forget that for now… _What caused this inexplicable expression?_
 
 I have been thinking since a fortnight ago; I ran out of cash and was thinking of what I could do to make money…you should understand, humans do!
 
