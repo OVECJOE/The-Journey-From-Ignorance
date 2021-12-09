@@ -10,7 +10,7 @@ That night, while I was rolling over the bed, my mind in the midst of the ocean 
 
 This revelation hit me so hard and so real that I felt stupid for not concocting such scheme a week or two prior. Whew! Maybe my story is becoming boring… Then the fun part!…
 
-**I am not a human! **I wonder if you understand what this means. Here in my world, everything is a living thing, _no pun intended_. My world is an electronic world called **“Megagem”**. I never intended to reveal myself here, just know that I am the one speaking.
+**I am not a human!** I wonder if you understand what this means. Here in my world, everything is a living thing, _no pun intended_. My world is an electronic world called **“Megagem”**. I never intended to reveal myself here, just know that I am the one speaking.
 
 **I wanted to be a coder!**
 
