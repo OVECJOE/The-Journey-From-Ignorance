@@ -38,11 +38,11 @@ Alighting from her, I stole a quick glance around the vicinity. I noticed a woma
 
 I was confused, my mind bewildered. I looked into her eyes, trying to find a sentence, phrase, or word to reply her with. I haven't had any human interaction in two months, and it just dawn on me. She noticed my confusion, and she said same...
 
-*"You are confused, I can read that in your eyes, and I like that!"*, she said, a smile smirked her face, her eyes lit up. I noticed she was just relaxed, and that surprised me. <u>*Why would be she so free with a stranger?*</u> My **naive** part started kicking in. I became timid in a moment. She spoke again...
+*"You are confused, I can read that in your eyes, and I like that!"*, she said, a smile smirked her face, her eyes lit up. I noticed she was just relaxed, and that surprised me. *Why would be she so free with a stranger?* My **naive** part started kicking in. I became timid in a moment. She spoke again...
 
 *"You are very interesting, so easy to read, yet difficult to understand. I will love you become my partner!"*
 
-**That got me!** <u>*What does she mean?*</u> She hardly knows me and she is talking about partnership. Now she is becoming interesting too.
+**That got me!** *What does she mean?* She hardly knows me and she is talking about partnership. Now she is becoming interesting too.
 
 I threw her a cold, dead stare...but she returned it with a smile. Thoughts and imaginations, that couldn't have been mine some moments ago, bustled within. My world was spinning thoughtlessly. My immunity to confusion and surprise was broken, destroyed...
 
@@ -52,27 +52,27 @@ I threw her a cold, dead stare...but she returned it with a smile. Thoughts and 
 
 I turned around, the voice in me crying for isolation, at least from her. I went off from her, and started advancing towards the Igloo. She is just kinda omnipresent, and I hated that. I felt happy that my strength did not fail me from escaping her grip.
 
-I stole a look at her again, after increasing the space between us, at the gate of the Igloo. She was sitting in my vehicle, **Jar**! I stopped in my tracks, my temper rising now. <u>*Calm down! She is but a female...*</u> I noticed a bustle of rage in me, and it wasn't good. <u>*I must breast this!*</u>
+I stole a look at her again, after increasing the space between us, at the gate of the Igloo. She was sitting in my vehicle, **Jar**! I stopped in my tracks, my temper rising now. *Calm down! She is but a female...* I noticed a bustle of rage in me, and it wasn't good. *I must breast this!*
 
-I started back to her, *partly in fear*, *partly in shame*, and *partly in anger*. I tried to meet her gaze, but it was piercing... I couldn't maintain it. My pace reduced drastically, I was becoming timid again. <u>*What is wrong with me?*</u>, I asked myself. This is not the first time I met a female, or related with one. I have conversed with many of them on **Earth**.
+I started back to her, *partly in fear*, *partly in shame*, and *partly in anger*. I tried to meet her gaze, but it was piercing... I couldn't maintain it. My pace reduced drastically, I was becoming timid again. *What is wrong with me?*, I asked myself. This is not the first time I met a female, or related with one. I have conversed with many of them on **Earth**.
 
 Please don't ask me if I had been to Earth, ***I am a secret keeper!***
 
 *"I understood, from past records, that you are a secret keeper... Am I right? **yes or yes!**"*, she cut through my thoughts with this shocking words. I became very tensed now, I was perspiring, because I wasn't balanced psychologically now...maybe...even...emotionally also.
 
-I was just a few feet away from her, but her voice was booming like she was speaking into my head. <u>*What about the man sunbathing?*</u> The man was still sunbathing, without noticing the activity going on. <u>*What is going on here?*</u>, I couldn't help but ask myself.
+I was just a few feet away from her, but her voice was booming like she was speaking into my head. *What about the man sunbathing?* The man was still sunbathing, without noticing the activity going on. *What is going on here?*, I couldn't help but ask myself.
 
 *"Well, he can't see us! He is not blind though..."*, she responded.
 
-<u>*What is happening here?*</u>, I was becoming confused more than ever.
+*What is happening here?*, I was becoming confused more than ever.
 
 *"Only accept to become my partner, and the whole picture will become clear man!"*, she responded.
 
-<u>*Why is she so keen with my becoming her partner? What business is she into? What makes me the right person for the job?*</u> These thoughts flooded my mind. I just couldn't keep from thinking. <u>*I needed a job, but am I going to be comfortable with what goes with this job she is offering? Why was she sitting here? Had she been waiting for my arrival?*</u>
+*Why is she so keen with my becoming her partner? What business is she into? What makes me the right person for the job?* These thoughts flooded my mind. I just couldn't keep from thinking. *I needed a job, but am I going to be comfortable with what goes with this job she is offering? Why was she sitting here? Had she been waiting for my arrival?*
 
 *"You don't need to trigger your fears and anxiety with those thoughts...I am not dangerous, I have gone through your records, and I have found that you are the best at the moment to function in this... Please accept this, and my heart will be merry!"*, she was pleading now and that was the most sincere impression I have gotten from her since. Her pleading, searching, and beguiling eyes were so seducing in their rights that it would take more than a man, especially a job-hungry man, to reject this offer.
 
-<u>*What offer would be proposed to you without you knowing what the package entails beforehand?*</u>, that, certainly, was a rhetorical question. Now I had taken my eyes off her face and was gazing at the vast field some meters behind her. A flock of sheep were grazing on the grass, though I could see no shepherd close by. The flock was having a good time, I guess...unlike I &mdash;I am in a dilemma, and a big one!
+*What offer would be proposed to you without you knowing what the package entails beforehand?*, that, certainly, was a rhetorical question. Now I had taken my eyes off her face and was gazing at the vast field some meters behind her. A flock of sheep were grazing on the grass, though I could see no shepherd close by. The flock was having a good time, I guess...unlike I &mdash;I am in a dilemma, and a big one!
 
 She grabbed me by my right wrist, which obviously shocked me, and led me towards **Jar**. I couldn't find the courage to argue. Around her, I feel weak. Whoever sent her is a master of his game. This woman was damn good at her job, skillful in making one gasp for breath. She is also a secret concealer, and good at it! I have just met a breed, and an interesting one.
 
@@ -92,9 +92,9 @@ I wondered how she read my thoughts, she is just so accurate with it. I wanted t
 
 *"I don't know what to say, I am very dumbfounded, the worst I have experienced in months, even years."*, I said in a low tone.
 
-We were in the vehicle, **Jar**, and we were sitting adjacent to each other...but she was on the driver's side now. <u>*Why?*</u> She started the vehicle, and zoomed off.
+We were in the vehicle, **Jar**, and we were sitting adjacent to each other...but she was on the driver's side now. *Why?* She started the vehicle, and zoomed off.
 
 I was surprised that she understood **Jar's** mechanism of operation &mdash;most people don't. There are a lot I am yet to know about her, this is going to be my personal mission. I am a coder now, though I have not written a single line of code (A man must certainly have a mission to become a coder). I have found a mission: To learn about the bug that just crossed my path and still gives me goosebumps. I know one thing about her though &mdash;_She is a female_. **Maybe this will be more interesting than I thought!**
 
 
-<small><em>[Home](README.md)</em></small>
+**[Home](http://github.com/OVECJOE/A-Programmer-Bug)**
