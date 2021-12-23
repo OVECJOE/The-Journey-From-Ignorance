@@ -81,5 +81,75 @@ I became desperate and determined to figure out who she is. She is belittling me
 *"Your past defines your present until you use the present to create a different past for yourself. I can also sense behaviours too."*
 
 At this point, we had gotten to the mouth of a cave. I was surprised that such a magnificent cave still existed. It was not tall, if you assume it is. There is hardly any characteristic that defines it is a cave, save the rocky walls and absence of a door. It was perfectly carved by nature. I would have loved to describe it, but I was so preoccupied that I failed to pay attention to any details.
+***
+**The inside of the cave caught my attention and I considered it...**
 
-**[Home](http://github.com/OVECJOE/A-Programmer-Bug)**
+Don't ask me for description, I am void of adjectives that best qualify its magnificence. To my sides (right and left) stood flower vases, taller than any humans I have seen, blooming and radiating. They provided light to the dark cave within. I began to wonder if they were nature-bred or manufactured. The floor beneath us were made of precious stones that I can't explicitly define &mdash;I do know there are a variety of stones in the design and it was made by creatures, not humans certainly.
+
+Every little wonderment that confronts us, or me, in the cave added a bit of colorful illumination to it. The ceiling high above us was made of stones, and yes, precious stones whose mixture were completely different from the ones beneath our feet! The cave was high on the inside, but so low on the outside that we had to cower to get in.
+
+**She** threw me a glance and I shot her a smile in return. I knew she knew what I was thinking at the moment, and to confirm that she replied me thus:
+
+*"It is funny what you hear people think at times..."*, she let out a guffaw that got me amazed. Could **She** be so fascinated to this extent? I thought she was somewhat a...er...masochist &mdash;sorry &mdash;sadist some hours ago. She has suddenly become someone whose her reactions was dazzling and unpredictable in a tripping moment.
+
+*"Well, I guess you will get to know more about me. I am also very curious about knowing who you really are. From the research I have done (yes, the research was on you), you must be someone of high caliber, a leader of a military group whose mission was to stop the democracy. You hated democracy, because in the wrong hands, it was a deadly tools...and it was almost always in the wrong hands on **Earth**. Your group were not humans, and your group is strong, organized, extraordinarily powerful..."*, she narrated with what looks like a trinket of smile on her lovely, sparkling face.
+
+*"Wow! You are really good! How did you managed to gather such information within a short span and just from going through my ...em...invisible past?!"*, I exclaimed with an obnoxious cackle that sounded like lightning hitting the dry and crunchy fruits of a lively short tree having many long branches.
+
+*"You had an aura I can't explain. Something that shows you are more than ordinary, that shows that your powers cannot be fathomed. Also, I am yet to know what country you came from, but I do know where some members of your group were kept and that is where we are now!"*, from the look of things, she ignored my question. *How painful!* Why is her mood a bolt from the blue?
+
+She stopped abruptly, after she had ended her historical talk that I was not interested in &mdash;though I must confess that I was interested in knowing who my group was; Not bad for a guy of...sorry, I don't even remember my age!
+
+We were standing in the midst of a tunnel. The tunnel was designed to be make the passers-by comfortable and relaxed. I should tell you why, right? Forget it!
+
+I wondered if anyone was in the tunnel, I couldn't see any prison anywhere close. I searched through the tunnel with my eyes, but couldn't find a sign of life. How could anyone be here now? Is there another hidden passage that led to a prison.
+
+*"Come out from your hiding place, thou friends of **Brenton Brew**! I can sense and smell you and your location brethren. Remember that you have little time."*, she barked to, in my opinion, space. I can't find anyone in close range.
+
+I noticed movements. My jaw came open when six men and two women ensued after her command. They weren't the kind of creatures I had imagined. I expected to see huge, rogue-like, and ugly men. I didn't even include a woman in my imagination! But it turned out my imagination was not well tuned, These were young, handsome or beautiful, innocent-looking, and war-oblivious individuals. I scanned them each carefully, memorizing every details about their looks, physique, and features.
+
+*"Where is **Carol Halmen**?"*, **She** asked, an expression of concern and worry was written on her face and it made me surprised that she could be caring.
+
+*"She is dead."*, the taller of the two women, or maybe ladies, replied. Her voice was extremely loud with just a whisper and piercing, but sweet.
+
+*"That lady who spoke is called **Wendy Wendy**. You were her crush, but you don't have time for anything of such then. **Carol Halmen** was the closest to you. She was your personal assistance and has fought many wars side by side with you. She is dead now."*, **She** explained without invitation, though I was very happy she did.
+
+*"You were also my crush then, but I hid it from you because I was very timid when it comes to feelings."*, the other lady replied with a smile.
+
+*"Yeah, he noticed it too but he also was ready for a relationship outside friendship with anyone then. That is **Venessa Butterland**, a wonderful friend that was almost every guy's crush, but she is so obsessed about you, though she is naturally very caring, even to enemies. She has a big heart."*, **She** was doing a good job explaining to me and I love the tone she was using.
+
+*"I wish I had reciprocated the love ma'am but I guess I had a mission that I wasn't willing to let emotions ruin. You must have been a wonderful darling lady."*, I spoke for the first time since I met this group.
+
+*"Don't think of it!"*, **Wendy** blurted out with envy, I guess.
+
+*"Yes!"*, the five men exclaimed in unison, nodding in agreement to **Wendy**'s words.
+
+*"**Venessa** was my crush!"*, they said again in unison. The remark surprised everyone, including **She**, though she quickly got over it.
+
+*"I did not come here to talk about crush-es! You better organize yourselves, because I knew you to be an organized group."*, she rebuked in her booming tone, this time I appreciated it.
+
+*"From right to left, names of theses men are **Stone Marson**, **Robinson Clark**, **Bosworth Chenghun**, **Queen Thomson**, **Chuck Chase**. They were very loyal to you, ready to sacrifice their lives for yours. Now fate has define us a new mission &mdash;to find who did this to us and for what. Any question?"*, she continued, but with a softer tone.
+
+*"You are beautiful..."*, **Bosworth** spat out.
+
+*"...and you are mad for saying it!"*, I replied, interrupting him.
+
+Everyone laughed, though **She**'s was the loudest, a mock it was. All I could do was snarled.
+
+**Top secret**: My name is **Brenton Brew**, aliased **BB** &mdash;that is in case you didn't notice when **She** introduced &mdash;and I just remembered my past! It obviously meant my powers are back.
+
+Well at present, no one &mdash;including **She** &mdash;knew this. I was happy they didn't, which meant that I have a surprise for them!
+
+*"What is bad in saying his mind?"*, **She** asked.
+
+*"He is saying it to the wrong person. No one should eye..."*, I suddenly stopped. I lost the courage to say what I wanted to say. I am bad at expressing feelings. *"Never mind!"*, I said, with a tone that was not convincing.
+
+**She** sniggered. She could read my mind and that really pisses me off, because I can't think freely anymore.
+
+*"Before we can start working on this new mission mistress, how do we get out of here?"*, I changed the topic.
+
+I am trying to understand a bug, **She**, but I am seeing more bugs unfolding...which is not good. Also, I am becoming a bug, and the thought of it is not funny. I derived comfort from a derived quote...
+
+*To understand a bug, you have to think like a bug!*, I hoped the quote was true.
+
+**[Home](../A-Programmer-Bug/README.md)**

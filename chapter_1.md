@@ -97,4 +97,4 @@ We were in the vehicle, **Jar**, and we were sitting adjacent to each other...bu
 I was surprised that she understood **Jar's** mechanism of operation &mdash;most people don't. There are a lot I am yet to know about her, this is going to be my personal mission. I am a coder now, though I have not written a single line of code (A man must certainly have a mission to become a coder). I have found a mission: To learn about the bug that just crossed my path and still gives me goosebumps. I know one thing about her though &mdash;_She is a female_. **Maybe this will be more interesting than I thought!**
 
 
-**[Home](http://github.com/OVECJOE/A-Programmer-Bug)**
+**[Home](../A-Programmer-Bug/README.md)**
