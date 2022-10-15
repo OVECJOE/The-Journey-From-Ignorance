@@ -1,10 +1,10 @@
 # Joblessness is a Job
 
-**For the first time since I had acquintance with driving, I have never driven a vehicle in the manner "She" &mdash;that's her name, she told me &mdash;drove it...**
+**For the first time since I had acquaintance with driving, I have never driven a vehicle in the manner "She" &mdash;that's her name, she told me &mdash;drove it...**
 
 The speed and recklessness scared me...
 
-I was panting heavily when we alighted **Jar**, while she was grinning mischeviously &mdash;It was hurting and detrimental the way she mocked me...maybe because she was all-knowing.
+I was panting heavily when we alighted **Jar**, while she was grinning mischievously &mdash;It was hurting and detrimental the way she mocked me...maybe because she was all-knowing.
 
 I said nothing. I just stared with a stoic expression on my face &mdash;I was trying hard to keep my thoughts hidden from this being. I feel that it is a faulty effort...faulty may not be the right word, but it best describes how futile it was trying to hide my thoughts from this creature.
 
@@ -32,13 +32,13 @@ She stopped abruptly and faced me. Her eyes roamed searchingly across my face. T
 
 Her eyes finally stopped at my lips, then she smiled and took her eyes off my face and back to the path.
 
-*"..."*, I tried asking her a question, but was surprised that I didn't utter the word. *What has she done to my vocal cords &mdash;to me? I have suddenly become dumb...just by mere facial scrutiny?*
+*"..."*, I tried asking her a question, but was surprised that I didn't utter the word. *What has she done to my vocal cords &mdash;to me? I have suddenly become dumb...just by mere facial scrutiny?!*
 
 Well, as far as I know, I still have a mind and could think &mdash;which means I can still communicate with her.
 
 *"I warned you about tagging me a liar, and you just did, though not intentionally...which means I could best keep us safe from my wrath by making you silent for a while lad!"*, she spurted the words without emotion. Each word had weight that broke me to pieces.
 
-*She could also amplify the weight of a word in one's mind?* I started wondering, thinking about these abilities is tearing me apart.
+*She could also amplify the weight of a word in one's mind?* I started wondering; thinking about these abilities is tearing me apart.
 
 I started feeling stupid for accepting the job in the first place. I allowed a female to impose her presence on me because of some super powers! I began to think about my past, but realized I had no past, to the best of my knowledge.
 
@@ -46,7 +46,7 @@ I started feeling stupid for accepting the job in the first place. I allowed a f
 
 *"Any moment you did not spend in **Megagem** is apparently erased from your memory, as long as you are here."*, she responded.
 
-*"How did you manage to fish out my past based on the stated theory?"*
+_"How did you manage to fish out my past based on the stated theory?"_
 
 *That's something for the dust! You just can't fathom it!* She responded into my mind. I wish she was doing that telepathically. Strangely, she is not.
 
@@ -56,7 +56,7 @@ I became desperate and determined to figure out who she is. She is belittling me
 
 **She** wasn't surprised, or her expression and conduct didn't show she was. She just walked on. *Why is she so strange?*
 
-*"I am very sorry for tricking your brain to believing that you couldn't speak. I would be so happy if you found out who I am, and where I came from...I don't know about that myself, and it worries me. I believe that my existence here is no coincidence though. There is a strong connection between us, because those that originated from here cannot leave here, but you have been to **Earth**. I have also realized that **Megagem** is a prison for special breeds of... em... creatures, I would say. This place makes them forget about their past outside this world. You are a prisoner, so is the man that was sunbathing (though he's a villian). You are also a pilgrim here. I need your help to find an entrance to the outside universe. We both need each other though. I still have my powers because I still remember my past, but you don't know your powers because you don't think you have a past."*, she spoke soberly and sweetly &mdash;the second time I got that impression from her since our first encounter.
+*"I am very sorry for tricking your brain to believing that you couldn't speak. I would be so happy if you found out who I am, and where I came from...I don't know about that myself, and it worries me. I believe that my existence here is no coincidence though. There is a strong connection between us, because those that originated from here cannot leave here, but you have been to **Earth**. I have also realized that **Megagem** is a prison for special breeds of... em... creatures, I would say. This place makes them forget about their past outside this world. You are a prisoner, so is the man that was sunbathing (though he's a villian). You are also a pilgrim here. I need your help to find an entrance to the outside universe. We both need each other though. I still have my powers because I still remembered my past, but you don't know your powers because you don't think you have a past."*, she spoke soberly and sweetly &mdash;the second time I got that impression from her since our first encounter.
 
 *"Are you saying that I am not from **Megagem**?"*
 
@@ -116,7 +116,7 @@ I noticed movements. My jaw came open when six men and two women ensued after he
 
 *"You were also my crush then, but I hid it from you because I was very timid when it comes to feelings."*, the other lady replied with a smile.
 
-*"Yeah, he noticed it too but he also was ready for a relationship outside friendship with anyone then. That is **Venessa Butterland**, a wonderful friend that was almost every guy's crush, but she is so obsessed about you, though she is naturally very caring, even to enemies. She has a big heart."*, **She** was doing a good job explaining to me and I love the tone she was using.
+*"Yeah, he noticed it too but he also wasn't ready for a relationship outside friendship with anyone then. That is **Vanessa Butterland**, a wonderful friend that was almost every guy's crush, but she was and is still so obsessed over you, though she is naturally very caring, even to enemies. She has a big heart."*, **She** was doing a good job explaining to me and I love the tone she was using.
 
 *"I wish I had reciprocated the love ma'am but I guess I had a mission that I wasn't willing to let emotions ruin. You must have been a wonderful darling lady."*, I spoke for the first time since I met this group.
 
