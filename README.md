@@ -1,4 +1,4 @@
-# A Programmer’s Bug
+# The Journey From Ignorance
 
 ## TABLE OF CONTENTS
 
