@@ -106,7 +106,7 @@ I wondered if anyone was in the tunnel, I couldn't see any prison anywhere close
 
 *"Come out from your hiding place, thou friends of **Brenton Brew**! I can sense and smell you and your location brethren. Remember that you have little time."*, she barked to, in my opinion, space. I can't find anyone in close range.
 
-I noticed movements. My jaw came open when six men and two women ensued after her command. They weren't the kind of creatures I had imagined. I expected to see huge, rogue-like, and ugly men. I didn't even include a woman in my imagination! But it turned out my imagination was not well tuned, These were young, handsome or beautiful, innocent-looking, and war-oblivious individuals. I scanned them each carefully, memorizing every details about their looks, physique, and features.
+I noticed movements. My jaw came open when five men and two women ensued after her command. They weren't the kind of creatures I had imagined. I expected to see huge, rogue-like, and ugly men. I didn't even include a woman in my imagination! But it turned out my imagination was not well tuned, These were young, handsome or beautiful, innocent-looking, and war-oblivious individuals. I scanned them each carefully, memorizing every details about their looks, physique, and features.
 
 *"Where is **Carol Halmen**?"*, **She** asked, an expression of concern and worry was written on her face and it made me surprised that she could be caring.
 

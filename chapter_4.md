@@ -45,3 +45,60 @@ I tried to remember, but my mind was blank. "I don't remember her," I said. "I d
 "She is sweet and kind," Carol said. "But she is dangerous, because she has lost her identity. The enemy is manipulating her using some sort of mind control. She kinda has two personalities. One is the sweet and kind Sheena, and the other is the dangerous and manipulative Sheena. Given her powers, she is one of our enemy's most deadly weapons." She paused for a moment. Tears welled up in her eyes. "All our friends are dead because of her."
 
 The alarm went off. It was a loud, piercing sound that made my head hurt. Carol looked around, panic in her eyes. "We need to move," she said. "Now!"
+
+---
+Now, we were at the foot of a mountain thirty kilometers away from the previous hideout. The footsteps and angry screams of the enemy were getting fainter. We had been running all afternoon and were now hiding in a long cave buried in the mountain. We were tired and hungry. We were also cold. The cave was dark and damp. The only source of light was a small fire that Carol had managed to start.
+
+We were sitting on the ground close to the fire. Our backs were against the cold, hard wall of the cave. We had left in a hurry, and had left almost everything behind. We had no food, no water, no blankets, and no weapons.
+
+I had been unconscious for about a week and hadn't eaten anything. I was weak and hungry. The race had taken a toll on me. At some point, Carol had carried me on her back for about an hour. While I was on her back, she kept trying to help me regain my memory. She told me stories about our time on Earth. How our team came together to fight back Earth's greatest enemy. Our enemy called themselves the "Inevitable". They were an army trained in the art of war and destruction by Megagem, the country known to the home of the most advanced aliens in the multiverse.
+
+She told me of how we turned our backs against Megagem's offer to join them and how we haunted them for years. Venessa, Wendy, and the five brothers were citizens of Megagem who could not stand the injustice and the tyranny of their government.
+
+Carol was the only human among our initial team of fifteen who is still alive and she was the weakest of us all, which no special abilities aside from her high intelligence and her ability to respond quickly, calmly, and effectively to a crisis or emergency. She was a world-class scientist, inventor, and hacker. She was the one who designed the technology that made it possible for us to travel through the multiverse undetected. She was a genius. She was also my best friend.
+
+Well, at least that's what she told me. I didn't remember any of it. I didn't remember her. I didn't remember our team. I didn't remember our mission. I didn't remember anything.
+
+On the other hand, I was the only one who was not human nor from Megagem. It looked like I was a mistake of some sort. I was like a failed experiment that was destroyed and thrown away because I was not controllable. From the beginning, I had no memory of my true identity. I was found by Carol washed to the shore of a beach on Earth, naked and unconscious.
+
+After about six months of Carol trying but failing to help me regain my identity, she decided to give me a new identity, **Brenton Brew**. This was before Megagem attacked Earth.
+
+For about two years, she taught me survival skills, combat skills (even though she had none), and how to use the technology she had designed. She also taught me how to speak and Write English. She told me that I had a photographic memory and learned faster than any human she had ever met.
+
+Let me whisper a fun fact that she told about myself. I understood every language spoken on Earth and could speak them fluently.
+
+She also told me that I had a special ability that no one else, except her, knew about...An ability that made me formidable. She called it "The Power of the Nature".
+
+I don't die.
+
+To be discrete, I do die. At least, Sheena killed me twice. But I always come back to life. How does that work? Let me explain.
+
+I possess two identities. One shapes my physical body, while the other empowers it. This second identity manages my memories, emotions, thoughts, and existence. It cannot be killed as it remains unseen, untouched, unperceived, and unheard.
+
+It is composed of nature's energy. Whenever I am presumed dead, it ventures into the wild, absorbing enough minerals to recreate the first identity. This process usually takes close to two weeks. Once the first identity is ready, the second identity installs itself, incorporating all the data stored from the preceding deceased identity.
+
+However, there is a downside: at times, it takes a while for some of my memories to be restored. In such cases, my body has undergone so much pain that the second identity attempts to restore it without the associated trauma.
+
+Carol has conducted research on my second identity following my initial demise, attempting to discern how to enable my second identity to generate a spare first identity. This way, I can switch immediately if anything happens to the current one.
+
+Think of it as facilitating self-healing for my body, except that it is not.
+
+As my second identity is composed of nature's energy, I don't experience exhaustion like others. I also don't age or fall ill. Nevertheless, I am unquestionably human in every other aspect. I eat, sleep, and breathe. I feel pain and emotions. I can be injured and bleed, just like everyone else. I also experience hunger and fatigue, much like I am feeling now.
+
+I was lost in thought when Carol spoke. "I wish we could get back to the old happy days," she said. "I wish we could wind back the clock and start over, when we were all together and happy." She looked at me and smiled sadly.
+
+"Sometimes I wonder why we fight," she said. "Why do we fight when we know that we are going to lose? Why do we fight when we know that we are going to die? Why do we fight when we know that we are going to lose everything that we love?" her voice broke. She wiped a tear from her eye using the back of her hand. 
+
+"Brenton, you gave me hope. You gave me a reason to fight, to live, to survive. After my husband and two daughters dies, I had nothing to live for. You were that ray of hope that I needed to keep going."
+
+I didn't know what to say. I must be very important to her. I must have been very important to our team. I must have been very important to our mission. What happened to her husband and daughters? How were they killed? I thought.
+
+She looked at me and smiled. "I'm sorry," she said. "I didn't mean to make you uncomfortable. I just wanted to tell you how much you mean to me." She looked away. "I have been dying to tell you that for a long time since Sheena betrayed us."
+
+She paused briefly, exhaling and inhaling deeply. Suddenly, I saw a flash of light, which triggered a lot of memories. Starting from when I first met Carol, to when we were betrayed by Sheena and scattered by the Inevitable. I remembered everything. I remembered who I was. I remembered my name. I remembered my mission. I remembered my team. I remembered everything.
+
+Except who I was before I met Carol.
+
+I felt flooded and overwhelmed by the memories. I felt like I was drowning in them. I started to cry. I cried for the friends that we lost. I cried for the mission that we failed. I cried for the world that we couldn't save. I cried for the life that I couldn't remember. I cried for the life that I couldn't have.
+
+Carol pulled up close to me, her eyes red-rimmed. We sat in silence for a while, the only sound the sniffles escaping our noses. Tears welled up again, blurring the world around us. Eventually, our sobs subsided into ragged breaths. Too weary to cry anymore, we drifted off to sleep, curled up together.
