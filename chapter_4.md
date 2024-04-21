@@ -102,3 +102,25 @@ Except who I was before I met Carol.
 I felt flooded and overwhelmed by the memories. I felt like I was drowning in them. I started to cry. I cried for the friends that we lost. I cried for the mission that we failed. I cried for the world that we couldn't save. I cried for the life that I couldn't remember. I cried for the life that I couldn't have.
 
 Carol pulled up close to me, her eyes red-rimmed. We sat in silence for a while, the only sound the sniffles escaping our noses. Tears welled up again, blurring the world around us. Eventually, our sobs subsided into ragged breaths. Too weary to cry anymore, we drifted off to sleep, curled up together.
+
+---
+
+"Today, we are going to Megagem's capital, Gemioro," I said as soon as Carol stirred awake. "We are going to find Sheena and win her over to our side..."
+
+Carol rubbed her eyes for a few seconds before she realized what I had said. She looked at me dazzled. "What?!" she exclaimed. "You are joking, right?" Her eyes scanned my face, searching for any sign of jest.
+
+I nodded in the negative. "I am serious, friend," I said with a thin smile. "Can you see what I see? Sheena is not our enemy. She is also a victim in a worse way than we are. She is being manipulated by the Inevitable. We need to save her."
+
+Carol's eyes widened in disbelief. "You can't be serious," she said. "Sheena is the reason why we are in this mess. She is the reason why we lost everything. She is the reason why we are running for our lives. She is the reason why you keep making the same mistakes over and over again." She paused for a moment, fury in her eyes. "Why do you feel this strong connection to her? It feels like you are under some sort of spell."
+
+I shook my head slowly. "I don't know," I said. "It is true that I feel a strong connection to her. I can't explain it, but I feel like I know her. I feel like I have known her for a long time. I feel like I have a bond with her that I can't break."
+
+"Strong enough to risk our lives for her?" Carol asked. "Strong enough to destroy everything that we have worked for?!" Her voice was rising. I could see the anger in her eyes and the pain in her face. The tension in the air was thick and rusty. I could feel it in my bones.
+
+"Relax, Carol," I said. "I know that this is a risk. I know that this is dangerous. But I also know that this is the right thing to do. Don't you trust me?"
+
+"I trusted you once," she said. "And it clouded my judgment. I didn't see that you had a weakness that could be exploited. A blind spot that weakens your leadership." She paused for a moment, her eyes searching mine. After a moment, she sighed. "I trust you, Brenton. I trust you with my heart. But I don't trust you with my life anymore."
+
+Carol was a type of friend that would process her emotions loudly when she is in shock or disbelief. Whenever she uses contradictory statements, it means there is an overwhelming emotion that she is trying to control. That is what she was doing now.
+
+She stood up from the hard ground and walked to the entrance of the cave. She looked out into the darkness, her back turned to me. I could see her shoulders shaking. I could hear her breathing, ragged and uneven. She was in pain and she was trying hard not to show it.
